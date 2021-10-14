@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Bat Milku
+- 👀 I’m interested in redheads and c#
+- 🌱 I’m currently learning how to use GitHub
+- 💞️ I’m looking to collaborate on(with) redheads
+- 📫 How to reach me- only if you are a redhead Bat Milku#0420
