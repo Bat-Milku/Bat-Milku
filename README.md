@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Bat Milku
-- 👀 I’m interested in c#
-- 🌱 I’m currently learning how to use GitHub
+- 👀 I’m interested in python
+- 🌱 I’m currently learning how to use GitHub 🤓
 - 💞️ I’m not looking to collaborate
 - 📫 How to reach me Bat Milku#0420
