@@ -1,4 +1,1 @@
-- 👋 Hi, I’m Bat Milku
-- 👀 I’m interested in Python
-- 🌱 I’m currently learning how to use Python
-- 📫 How to reach me: Bat Milku#0420
+
